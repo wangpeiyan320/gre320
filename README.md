@@ -1,1 +1,1 @@
-# You are so gorgeous it makes so mad
+# You are so gorgeous it makes me so mad.
